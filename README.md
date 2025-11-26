@@ -1,4 +1,7 @@
 # deva.indu
 The Indu Deva
 
-56695868738033688258
+Copyright ©2000-2025 Quinn A Michaels; All rights reserved. 
+Legal Signature Required For Lawful Use.
+Distributed under VLA:31691656237827831406 LICENSE.md
+Wednesday, November 26, 2025 - 6:10:27 AM
